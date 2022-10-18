@@ -1,2 +1,1 @@
 # album-figurinhas
-# album-figurinhas
